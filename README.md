@@ -1,4 +1,4 @@
-- 👋 Oi, eu sou @Dgzin7
+- 👋 Oi, eu sou @Diego
 
 - 👀 Estou interessado em ...
 
